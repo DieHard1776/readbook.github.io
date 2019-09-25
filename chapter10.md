@@ -5,11 +5,14 @@ nhưng sợ phải nói cho chồng cô biết. Cô có các lý do xác đáng 
 định của mình, nhưng cô biết anh sẽ cầu xin cô ở lại, và cô sẽ suy sụp với
 đầy cảm giác tội lỗi. Hơn tất cả, Celia muốn thông báo tin này của mình một
 cách nhẹ nhàng, cảm thông nhất hết mức có thể.
+
 Chúng tôi quyết định sẽ chia vai tập dượt cuộc hội thoại này của họ, với tôi
 đóng vai chồng của cô: “Em muốn kết thúc cuộc hôn nhân này”, Celia nói.
+
 “Lần này em thực sự nghiêm túc về chuyện đó”.
-“Anh đã làm tất cả mọi thứ anh có thể để giữ mọi thứ lại với nhau”, tôi cầu
-xin. “Sao em có thể làm thế này với anh chứ?”
+
+“Anh đã làm tất cả mọi thứ anh có thể để giữ mọi thứ lại với nhau”, tôi cầu xin. “Sao em có thể làm thế này với anh chứ?”
+
 Celia suy nghĩ một lúc.
 “Em đã dành rất nhiều thời gian suy nghĩ kỹ về chuyện này, và em tin rằng
 đây là quyết định đúng”, cô trả lời bằng một giọng chắc chắn.
